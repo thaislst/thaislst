@@ -2,7 +2,7 @@
 
 ### Desenvolvedora Web e Meteorologista! 🌍💻
 
-Sou apaixonado por resolver problemas de forma ágil e criativa. Sempre aberta a novos desafios e pronta para encarar mudanças.
+Sou apaixonado por resolver problemas de forma ágil e criativa. 
 
 📫 Como me encontrar: santos.thaisle@gmail.com
 
